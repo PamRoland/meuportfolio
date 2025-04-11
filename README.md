@@ -51,4 +51,4 @@ Busco crescimento constante, aprendendo com pessoas, experiências e, claro, nú
 ---
 
 ## 📬 Onde me encontrar
-[LinkedIn](https://www.linkedin.com/in/pamroland/) | [GitHub](https://github.com/PamRoland) | pamela.roland@seniorcuritiba.com
+[LinkedIn](https://www.linkedin.com/in/pamelaroland/) | [GitHub](https://github.com/PamRoland) | pamela.roland@seniorcuritiba.com
